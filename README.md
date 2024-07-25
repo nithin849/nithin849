@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mangali Nithin
-- 📝 I'm currently studying btech at B V Raju institute of technology,narsapur
+- 📝 I'm currently studying final year of my btech at B V Raju institute of technology,narsapur
 - 👀 I’m interested to work in software field to learn new technologies and excel my skills. 
 - 🌱 I’m currently learning frontend development 
 - 📫 How to reach me -- instagram-nithin_849. linkedin-https://www.linkedin.com/me?trk=p_mwlite_feed-secondary_nav
